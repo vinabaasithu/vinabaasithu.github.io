@@ -1,3 +1,1 @@
-# ASDA
-# vinabaasithu.github.io
-asd
+# EZ MEEZY
